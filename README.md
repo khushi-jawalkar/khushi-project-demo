@@ -1,1 +1,0 @@
-# khushi-project-demo
